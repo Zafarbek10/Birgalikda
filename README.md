@@ -1,0 +1,2 @@
+# Birgalikda
+Maqsad aniq
